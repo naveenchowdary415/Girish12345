@@ -1,5 +1,5 @@
 <html>
 <body>
-<h2>Relly what vishwa teaching we are not able to understand something nonsense teaching, we are learning because of job , what yougeesh what are you feeling</h2>
+<h2>yes,we are editing some lines in , and this is the majic of the logic yoghes</h2>
 </body>
 </html>
